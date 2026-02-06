@@ -1,1 +1,1 @@
-# Admision-2026-Ar-ozPinto
+# Admision-2026-AraozPinto
